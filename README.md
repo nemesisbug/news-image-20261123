@@ -59,8 +59,8 @@ geopolitical times" (AFP, 23 Nov).
   "stable" in intensive care; Netanyahu–Eisenkot talks end with no deal;
   24 civilians killed in fresh South Sudan violence; Kim says North Korea
   seeks security, not supremacy; Shah launches a ₹4,000 crore Arunachal
-  push; nine hurt in a mass shooting at a California concert; tributes for
-  Molly Meldrum; India and Bulgaria talk ties and IMEC; Pope Leo XIV
+  push; nine hurt in a mass shooting at a California concert; Molly
+  Meldrum dies at 83; India and Bulgaria talk ties and IMEC; Pope Leo XIV
   given hand-knitted socks by a family evacuated from Oleshky.
 
 Stories from earlier days ("El Chapo Isidro" captured 20 Nov, the
